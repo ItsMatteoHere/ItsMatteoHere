@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ItsMatteoHere
+- 👋 Hi, I’m Matteo
 - 👀 I’m interested in meeting the best tech contributor here
 - 🕵🏼 I’m currently sourcing for several opportunities 
 - 💞️ I’m looking to collaborate on changing a small piece of normality
